@@ -1,19 +1,19 @@
 ---
 layout: casino
-title: Bitstarz
-permalink: /bitstarz/
+title: Cloudbet
+permalink: /cloudbet/
 ---
 
-<strong>Cloudbet</strong> è un casinò Bitcoin conosciuto e rispettato.
+<strong>Cloudbet</strong> è un casinò Bitcoin rinomato e prestigioso.
 
-<strong>tl;dr (troppo a lungo, non ha letto)</strong>: Cloudbet funziona apparentemente pulito e non si basa la nostra ricerca con la frode.
+<strong>tl;dr (troppo lungo, non ha letto)</strong>: Cloudbet sembra funzionare in modo pulito e non si basa sulla frode.
 
-<strong>Lingue disponibili per la piattaforma</strong>: Il casinò Bitcoin è disponibile in inglese. Ciò vale sia per la piattaforma, nonché per l'area del sito con il settore Aiuto ee supporto live.
+<strong>Lingue disponibili della piattaforma</strong>: Il casinò Bitcoin è disponibile in inglese. Questo vale sia per la piattaforma che per l' area del sito web con le FAQ e l' assistenza settoriale e dal vivo.
 
-<strong>Valute disponibili per depositi e prelievi</strong>: come valuta digitale a giocatori con BTC (Bitcoin) di deposito. La vincita al Cloudbet può avvenire in BTC. Altre valute non sono accettati, nessun ingresso o per i pagamenti.
+<strong>Corsie disponibili su depositi e prelievi</strong>: come valuta digitale, i giocatori possono depositare presso BTC (Bitcoin). Il pagamento di Cloudbet può avvenire anche in BTC. Non sono accettate altre valute, né per depositi né per prelievi.
 
-<strong>La posizione del provider</strong>: Curacao alle Antille olandesi è fiscalmente e legalmente certamente vantaggiosa rispetto, per esempio, Berlino. Molti casinò Bitcoin stimabili hanno sede nelle Antille olandesi, e questo non è quello di valutare fin dall'inizio come puramente negativo.
+<strong>Localizzazione del fornitore</strong>: Curaçao sulle Antille Olandesi è certamente più vantaggiosa in termini fiscali e legali che, ad esempio, Berlino. Molti rinomati casinò Bitcoin hanno sede nelle Antille Olandesi e questa non deve essere considerata una situazione puramente negativa fin dall' inizio.
 
-<strong>Bonus sul Cloudbet</strong>: Il bonus massimo di deposito è di cinque Bitcoin (BTC 5) al 100% del primo deposito.
+<strong>Cloudbet</strong>: Il bonus di deposito massimo è di cinque bitcoins (5 BTC) al 100% per il primo deposito.
 
-<strong>Dimostrabilmente giusto?</strong> Attenzione: Cloudbet è stato "giusto dimostrabilmente" testato non ancora ufficialmente designato. Un relativamente buona reputazione del casinò garantito, ma la sicurezza necessaria.
+<strong>Provabilmente equo:</strong> Attenzione: Cloudbet non è ancora stato ufficialmente testato come "<a href="http://www.btccasino.it/provably-fair/">provably fair (dimostrabilmente equo)</a>". Tuttavia, una reputazione relativamente buona del casinò garantisce la necessaria sicurezza.
