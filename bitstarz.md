@@ -4,16 +4,16 @@ title: Bitstarz
 permalink: /bitstarz/
 ---
 
-<strong>Bitstarz</strong> era precedentemente Bitstars ed è un casinò Bitcoin relativamente ben conosciuto e rispettato.
+<strong>Bitstarz</strong> usato per essere chiamato Bitstars ed è un casinò Bitcoin relativamente ben noto e rispettato.
 
-<strong>tl;dr (troppo a lungo, non ha letto)</strong>: Bitstarz funziona correttamente e non si basa su frode. E 'gestito dal principio ufficialmente riconosciuto "dimostrabilmente giusto" ed è quindi chiaramente non è una truffa, non strappare e come un casinò online serio da essere classificata con deposito BTC BTC e vincita.
+<strong>tl;dr (troppo lungo, non ha letto)</strong>: Bitstarz funziona in modo pulito e non si basa sulla frode. È gestito secondo il principio ufficialmente riconosciuto "<a href="http://www.btccasino.it/provably-fair/">provably fair</a>"-principio ed è quindi chiaramente nessuna frode, nessun rip-off e un casinò online serio con deposito BTC e pagamento BTC.
 
-<strong>Lingue disponibili per la piattaforma</strong>: Il casinò Bitcoin è disponibile in inglese e svedese. Ciò vale sia per la piattaforma, nonché per l'area del sito con il settore Assistenza Domande e.
+<strong>Lingue disponibili della piattaforma</strong>: Il casinò Bitcoin è disponibile in inglese e svedese. Questo vale sia per la piattaforma che per l' area del sito web con le FAQ e la sezione Aiuto.
 
-<strong>Valute disponibili per depositi e prelievi</strong>: come valuta digitale a giocatori con BTC (Bitcoin) di deposito. La vincita al Bitstarz può avvenire in BTC. Inoltre, EUR / USD / GBP / AUD / SEK / NOK / CAD sono accettati per i depositi e prelievi.
+<strong>Corsie disponibili su depositi e prelievi</strong>: come valuta digitale, i giocatori possono depositare presso BTC (Bitcoin). Il pagamento presso Bitstarz può avvenire anche in BTC. Inoltre, EUR/USD/GBP/AUD/SEK/SEK/SEK/NOK/CAD sono accettati per depositi e prelievi.
 
-<strong>La posizione del provider</strong>: Curacao alle Antille olandesi è fiscalmente e legalmente certamente vantaggiosa rispetto, per esempio, Berlino. Molti casinò Bitcoin stimabili hanno sede nelle Antille olandesi, e questo non è quello di valutare fin dall'inizio come puramente negativo.
+<strong>Localizzazione del fornitore</strong>: Curaçao sulle Antille Olandesi è certamente più vantaggiosa in termini fiscali e legali che, ad esempio, Berlino. Molti rinomati casinò Bitcoin hanno sede nelle Antille Olandesi e questa non deve essere considerata una situazione puramente negativa fin dall' inizio.
 
-<strong>Bonus sul Bitstarz</strong>: Il bonus massimo di deposito è un Bitcoin (BTC 1) e non vi è il 100% del primo deposito. Inoltre, è possibile salvarlo come un bonus di 180 giri gratis sulle slot machine. Per gli acquisti successivi (deposito da 1 a n), ci sono bonus variabili che possono essere aggiornati quotidianamente sono disponibili sul sito web. Totale e comparabili Bitstarz fornisce una relativamente buona offerta di bonus.
+<strong>Bonus a Bitstarz</strong>: Il bonus di deposito massimo è uno Bitcoin (1 BTC) e c' è 100% per il primo deposito. Inoltre, è possibile guadagnare 180 rotazioni gratuite sul banditi con un solo braccio come bonus di deposito. Per i depositi successivi (depositi da 1 a n) sono previsti bonus variabili, consultabili giornalmente sul sito internet. Bitstarz fornisce un' offerta di bonus relativamente buona offerta complessiva e comparabile.
 
-<strong>Dimostrabilmente giusto?</strong> Bitstarz (ex Bitstars) è stato "equo dimostrabilmente" testato ufficialmente. Insieme alla buona reputazione del casinò può essere dichiarato così: Bitstarz non è sicuramente una truffa o rip-off. La serietà, possiamo confermare da esperienze e da prove.
+<strong>Provabilmente equo?</strong> Bitstarz (precedentemente: Bitstars) è stato ufficialmente testato come "Provably fair". Insieme alla buona reputazione del casinò, è facile da ricordare: Bitstarz non è sicuramente una truffa o un rip-off. Possiamo confermare la serietà sulla base dell' esperienza e di un test.
