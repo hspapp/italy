@@ -4,7 +4,7 @@ title: Provably Fair
 permalink: /provably-fair/
 ---
 
-<h2>Cosa significa "provably fair (dimostrabilmente giusto)"?</h2>
+<h2>Cosa significa "provably fair"?</h2>
 
 Questo termine si riferisce ad un algoritmo che assicura che i casinò online giochino in modo equo e senza strappi.
 
