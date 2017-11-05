@@ -7,3 +7,5 @@ url: "https://www.btccasino.it" # the base hostname & protocol for your site
 
 # Build settings
 markdown: kramdown
+
+include: ["_redirects"]
